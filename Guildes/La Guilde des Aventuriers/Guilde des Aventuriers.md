@@ -1,0 +1,2 @@
+#Aventurier #Guilde
+Dirigée par Ulianna Fil'Atir, c'est un refuge pour les audacieux et les chercheurs de fortune. C'est là que les contrats sont signés, les alliances sont formées, et où chaque héros trouve sa place pour défier les dangers et conquérir les terres mystérieuses de Seia.
